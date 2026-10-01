@@ -1,2 +1,2 @@
-# theedurk-cmyk.github.ii
+# theedurk97-cmyk.github.io
 Francis Kinyanjui Maina -IT Portfolio 
